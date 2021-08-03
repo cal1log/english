@@ -9,3 +9,5 @@
 ## 29 july 2021 - lesson 2
 
 ## 30 july 2021 - lesson 3
+
+## 3 august 2021 - lesson 4
