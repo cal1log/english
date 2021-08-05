@@ -13,3 +13,5 @@
 ## 3 august 2021 - lesson 4-5
 
 ## 4 august 2021 - lesson 6
+
+## 5 august 2021 - lesson 7
