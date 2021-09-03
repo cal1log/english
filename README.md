@@ -25,3 +25,5 @@
 ## 18 august 2021 - lesson 25-26-27-28-29
 
 ## 1 september 2021 - lesson 30-31-32-33-34-35-36-37
+
+## 3 september 2021 - lesson 38
