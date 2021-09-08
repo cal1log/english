@@ -29,3 +29,5 @@
 ## 3 september 2021 - lesson 38
 
 ## 7 september 2021 - lesson 39
+
+## 8 september 2021 - lesson 40
