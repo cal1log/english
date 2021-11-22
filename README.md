@@ -33,3 +33,5 @@
 ## 8 september 2021 - lesson 40
 
 ## 14 september 2021 - lesson 41
+
+## 22 november 2021 - [phrasal verb get link](https://www.youtube.com/watch?v=N6f6gPG3p60)
