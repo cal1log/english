@@ -35,3 +35,5 @@
 ## 14 september 2021 - lesson 41
 
 ## 22 november 2021 - [phrasal verb get link](https://www.youtube.com/watch?v=N6f6gPG3p60)
+
+## 23 november 2021 - [phrasal verb take link](https://www.youtube.com/watch?v=mrXt9yrZryg)
